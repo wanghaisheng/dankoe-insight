@@ -1,3 +1,5 @@
-WebSim Vibe Coding Starter
 
-all tools are free 
+
+
+https://youtubetotranscript.com/transcript?v=h-KVGHoQ_98&current_language_code=en
+
